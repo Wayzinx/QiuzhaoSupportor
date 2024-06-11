@@ -8,4 +8,5 @@
 。。。好吧，今天没有，总之可以这样使用
 ![image](https://github.com/Wayzinx/QiuzhaoSupportor/assets/46066700/f7708fa8-73e7-4290-8fb4-2242d59625f4)
 
-![Uploading image.png…]()
+![image](https://github.com/Wayzinx/QiuzhaoSupportor/assets/46066700/e08932a9-2326-4692-8903-c47d2462e393)
+
